@@ -1,0 +1,1 @@
+Hack Kigali is a youth-led innovation hackathon organized by the passionate members of Saint Vincent Pallotti Gikondo Hack Club. This event brings together students and young changemakers across Kigali to create impactful solutions in the fields of education and cybersecurity.
